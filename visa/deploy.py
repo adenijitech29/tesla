@@ -1,3 +1,5 @@
 hbhbedbhedbhbdwhdbwhbdwhdbwhbdwd
 
 fintech shit
+chief
+oxymoron
